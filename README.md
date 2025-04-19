@@ -36,4 +36,4 @@ Many traders have reported that once they deposit funds, **Smtradingcenter.com b
 ## 📬 Need Help?
 
 If you have questions about Smtradingcenter.com, contact us at:  
-📧 **Checkpointreviews1@gmail.com**
+📧 **Jagorishmael@gmail.com**
