@@ -1,5 +1,3 @@
-# ⚠️ Warning: Smtradingcenter.com (Stanford Markets) is a Scam!
-
 Many traders have fallen victim to the fraudulent practices of **Smtradingcenter.com**. This broker is **not licensed** and operates illegally, targeting novice traders who are unfamiliar with the risks.
 
 ---
